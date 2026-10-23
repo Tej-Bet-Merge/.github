@@ -1,1 +1,1 @@
-Place for Tej Bet projects nth serious going on here
+A place for Tej Bet projects. Nothing serious going on here.
